@@ -1,5 +1,4 @@
-# [爱情，是两颗心的温柔碰撞，擦出最灿烂的火花，照亮彼此的世界](https://kaiweu.gitbook.io/kaiweu-docs/
-)。
+# [爱情，是两颗心的温柔碰撞，擦出最灿烂的火花，照亮彼此的世界](https://kaiweu.gitbook.io/kaiweu-docs/)。
 
 ### 1. heiliao-community.cloud：信息社区与导航入口  
 网站地址：[https://www.heiliao-community.cloud](https://www.heiliao-community.cloud)  
